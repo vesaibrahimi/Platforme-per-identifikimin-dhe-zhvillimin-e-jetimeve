@@ -1,0 +1,1 @@
+# Platforme-per-identifikimin-dhe-zhvillimin-e-jetimeve
